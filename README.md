@@ -12,4 +12,5 @@ Meu nome é Caio Vinicius
 
 00001095946602sp@al.educacao.sp.gov.br
 
-
+![](https://media1.tenor.com/m/GPz7JLpGKV0AAAAC/thanos-talking.gif)
+![](https://media.tenor.com/YKSM9gsgPycAAAAi/thanos-dancing-twerking.gif)
